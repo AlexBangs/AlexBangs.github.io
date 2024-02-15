@@ -17,5 +17,5 @@ Currently, as of 2/15 I am stressing over the following things:
 2. Completing my Bachelor's Degree in Cybersecurity at WGU
 3. [Become stronger than a 78 year old woman on my -~~Bench(180lbs)~~, Squat (413lbs), and Deadlift (360 lbs)
 ](https://www.youtube.com/watch?v=9J1geyFW0uY)
-4. Knowing "What specalization of Cybersecurity" I should focus on
+4. Finding what specialization of Cybersecurity I should focus on
 5. Get a job in said specialization.
