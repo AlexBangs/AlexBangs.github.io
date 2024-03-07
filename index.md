@@ -1,2 +1,2 @@
-## Hey, this is Alex.
-I am Cybersecurity student on his way up.
+## Thanks for reading this. I hope it helps you out
+
